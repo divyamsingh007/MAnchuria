@@ -1,0 +1,1 @@
+Gobi Manchurian is an Indian Chinese fried cauliflower dish. Gobi Manchurian is the result of the adaptation of Chinese cooking and seasoning techniques to suit Indian tastes and has become a staple of Indian Chinese cuisine.
